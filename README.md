@@ -1,0 +1,2 @@
+# philosophicalhypocrazy
+here to learn.
